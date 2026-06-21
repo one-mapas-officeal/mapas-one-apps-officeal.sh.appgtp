@@ -1,0 +1,1 @@
+# mapas-one-apps-officeal.sh.appgtp
